@@ -1,4 +1,4 @@
-# 
+# Ultimato meme coin sniper bot scripts para Mac OS | Oficial meme coin sniper bot scripts para PC Windows. Com estratégias de back-running e detecção de imposto de venda — otimizado para máximo desempeño en cada plataforma.
 
 
 
